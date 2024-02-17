@@ -2,7 +2,7 @@
 - 👀 I’m interested in Hacking
 - 🌱 I’m currently learning JS
 - 💞️ I’m looking to collaborate on Business
-- 📫 How to reach me on 7348380214
+- 📫 Reach me on 7348380214
 - 😄 Pronouns: Founder of Rani & Sons
 - ⚡ Fun fact: I did not have any girl friend
 
